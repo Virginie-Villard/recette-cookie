@@ -11,6 +11,8 @@ ingrédients :
 1 cuillère à café de sel
 1 cuillère à café de levure chimique
 
+Réalisation
+Détailler le chocolat en pépites.
 
 
 
